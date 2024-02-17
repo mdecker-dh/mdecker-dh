@@ -1,4 +1,3 @@
-### Hi there 👋
 
 I am interested in the following topics: 
 
